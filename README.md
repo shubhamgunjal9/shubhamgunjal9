@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **gunjalshubham108@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TZVUyE-FBh7b824tETRO7LU5wO5HiZp-/view?usp=sharing](https://drive.google.com/file/d/1TZVUyE-FBh7b824tETRO7LU5wO5HiZp-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1W4AXiPkiJ46iYMJTvPQj9cPe1mc6rTSl/view?usp=share_link](https://drive.google.com/file/d/1W4AXiPkiJ46iYMJTvPQj9cPe1mc6rTSl/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
